@@ -1,4 +1,4 @@
-## hi, i'm sami ♡
+## sami ♡
 
 student & aspiring software engineer
 
